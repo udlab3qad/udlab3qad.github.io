@@ -1,1 +1,0 @@
-# udlab3qad.github.io
